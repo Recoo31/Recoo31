@@ -1,3 +1,5 @@
-Youtube: https://www.youtube.com/c/Recoo31
+**Greetings**! Im **16** and living in **Turkey**
 
-Discord: Reco#3461
+**Youtube**: https://www.youtube.com/c/Recoo31
+
+**Discord**: Reco#3461
